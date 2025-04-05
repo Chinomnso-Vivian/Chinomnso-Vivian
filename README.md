@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analytics and data science projects, topics and professionals
 - 🌱 I’m currently learning data analytics and AI
 - 💞️ I’m looking to collaborate on projects.
-- 📫 How to reach me obinnauzodinmachinomnso@hmail.com
+- 📫 How to reach me obinnauzodinmachinomnso@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: scorpion
 
